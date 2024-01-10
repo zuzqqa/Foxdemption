@@ -1,4 +1,4 @@
-https://www.dropbox.com/scl/fo/jc9a9j1onf6rpf6p9eq4y/h?rlkey=idzuo7qpiu7k61kdajxd6qfi5&dl=0
+[https://www.dropbox.com/scl/fo/jc9a9j1onf6rpf6p9eq4y/h?rlkey=idzuo7qpiu7k61kdajxd6qfi5&dl=0](https://www.dropbox.com/scl/fo/8qldkagkl6t6vrmh69e8k/h?rlkey=c7k9945u8w8vgpyky5fvtfjla&dl=0)
 
 ### Opis gry:
 *Foxdemption* to dynamiczna gra platformowa, w której wcielasz się w postać lisa, pragnącego uciec z pełnego zagadek miasta. Zbieraj klucze, omijaj przeciwników i korzystaj z różnorodnych mechanizmów, takich jak trampoliny, potki, tajne przejścia oraz dialogi, aby osiągnąć wolność.
